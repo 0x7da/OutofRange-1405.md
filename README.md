@@ -1,6 +1,6 @@
 # OutofRange-1405.md
 Kiddie asked my Login data
 
-https://media.discordapp.net/attachments/872917761909719051/1050068125753802752/image.png?width=412&height=656 Kiddie Asked my Friends
+![image](https://user-images.githubusercontent.com/38230414/206237315-664330b4-2d9a-4f27-8575-e6b7dbe4430a.png) Nach meinen Login Daten Fragen über Freunde von mir
+![image](https://user-images.githubusercontent.com/38230414/206237335-e15db0b3-87bb-429b-9499-1eb974275438.png) Mich blockieren weil ich dich Frage?.
 
-https://media.discordapp.net/attachments/826231574177644585/1050088105400614913/image.png?width=1156&height=209 Kiddie Blocked me :(
